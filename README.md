@@ -8,4 +8,4 @@ Discord - ! JustGargoyle#2457
 
 QQ - 1550827631
 
-更新QQ群640908477
+更新QQ群 640908477
